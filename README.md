@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @MrDannatt#1234
-- 👀 I’m interested in managing discord servers
+- 👋 Hi, I’m Mr D#4814
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on discord servers
-- 📫 reach me by discord (its my username)
+- 💞️ I’m looking to own discord servers
+- 📫 reach me by discord
