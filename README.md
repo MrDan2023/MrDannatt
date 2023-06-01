@@ -1,4 +1,3 @@
-- 👋 Hi, I’m Mr D#4814
+- 👋 I’m Mr Dann#4814 (discord)
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to own discord servers
 - 📫 reach me by discord
