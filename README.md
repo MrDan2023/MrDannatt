@@ -1,3 +1,3 @@
-- 👋 I’m Mr Dann#4814 (discord)
-- 🌱 I’m currently learning nothing
-- 📫 reach me by discord
+- 👋 Discord: mrdan_4800
+- 🌱 I do the funny code thingy
+- 📫 Any questions, comments, ect please add me on discord!
