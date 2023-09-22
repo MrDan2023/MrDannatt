@@ -1,3 +1,3 @@
 - 👋 Discord: mrdan_4800
-- 🌱 I do the funny code thingy
-- 📫 Any questions, comments, ect please add me on discord!
+- 🌱 Im learning python and html 5
+- 📫 Reach me via discord
